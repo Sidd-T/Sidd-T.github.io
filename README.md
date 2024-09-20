@@ -19,5 +19,8 @@ https://github.com/varadbhogayata/varadbhogayata.github.io
 
 # Activity 4
 
+![image](https://github.com/user-attachments/assets/eb2cd8b5-1f08-422b-906b-2cdea8065640)
+![image](https://github.com/user-attachments/assets/9327cbde-5820-4001-ae6e-4b9335ec322a)
+
 # Activity 5
 
